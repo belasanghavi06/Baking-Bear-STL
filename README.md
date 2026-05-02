@@ -1,1 +1,0 @@
-# Baking-Bear-STL
